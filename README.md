@@ -1,5 +1,7 @@
 # 推特X（Twitter）账号购买｜支持空号、成品号、有粉账号批发
 
+![推特X（Twitter）账号购买](https://blog.maihaojun.com/wp-content/uploads/2026/05/buy-twitter.jpg)
+
 先把结论放前面：无论是“买 Twitter 账号”还是“出租账号带货”，都属于高风险操作，很多时候不仅不值，还可能把你本来正常的业务一起搭进去。
 
 先说说为什么最近“Twitter账号购买”突然火起来。  
